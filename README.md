@@ -48,6 +48,7 @@ Beyond engineering, I’m also an **AI educator and content creator**. Through m
 ---
 
 ## 📫 Connect with Me
+- [LinkedIn](https://www.linkedin.com/in/mohammad-seyfi-736006303?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - [Email](mailto:mohammadseifi8131@gmail.com)  
 - [GitHub](https://github.com/mohammadseyfi11)  
 - [Instagram – @ExplainsAI](https://instagram.com/explainsai)  
