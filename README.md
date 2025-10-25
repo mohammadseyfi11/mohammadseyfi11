@@ -42,7 +42,7 @@ Beyond engineering, I’m also an **AI educator and content creator**. Through m
 
 ## 🌍 Community & Knowledge Sharing
 - Founder of **[@ExplainsAI](https://instagram.com/explainsai)**  
-- 30,000+ followers in under 2 years  
+- 28,000+ followers in under 2 years  
 - Mission: make **Machine Learning & Deep Learning** concepts accessible, engaging, and practical for everyone  
 
 ---
